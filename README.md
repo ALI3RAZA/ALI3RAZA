@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ALI3RAZA
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning bscs degree
+- 🌱 I’m currently doing bscs degree
 - 💞️ I’m looking to collaborate on information
 - 📫 How to reach me @amopakarmy@gmail.com
 
